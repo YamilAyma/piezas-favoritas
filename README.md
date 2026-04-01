@@ -81,7 +81,13 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 *Pasión, emoción desbordada y libertad.*
 
 ### *Waltz Op. 69 No. 1 "Farewell Waltz"* — Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/g3aIVzoEaI0)
+
+### *Waltz of The Flowers* — Tchaikovsky
 * **Link:** [Ver en YouTube](https://youtu.be/qPpDNY-Iiz0)
+
+### * Valse Sentimentale* — Tchaikovsky
+* **Link:** [Ver en YouTube](https://youtu.be/rUuusqy50yk)
 
 ---
 
