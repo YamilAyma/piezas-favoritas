@@ -5,11 +5,11 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 ---
 
 ## 📑 Índice por Periodos
-1. [Barroco](#-barroco) (Bach, Vivaldi, Haendel...)
-2. [Clasicismo](#-clasicismo) (Mozart, Haydn, Beethoven temprano...)
-3. [Romanticismo](#-romanticismo) (Chopin, Liszt, Tchaikovsky, Mahler...)
-<!--4. [Impresionismo y Modernismo](#-impresionismo-y-modernismo) (Debussy, Ravel, Stravinsky...)-->
-
+1. [Barroco](#-barroco) (1600–1750)
+2. [Clasicismo](#-clasicismo) (1750–1820)
+3. [Romanticismo Temprano y Pleno](#-romanticismo-pleno) (1810–1860)
+4. [Romanticismo Tardío y Post-Romanticismo](#-romanticismo-tardio) (1860–1910)
+5. [Modernismo y Siglo XX](#-modernismo) (1910–1980)
 ---
 
 ## Barroco
@@ -17,6 +17,9 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 
 ### *Concerto no.1 in D Minor BWV 1052: 1mvt* - J.S.Bach
 * **Link:** [00:05 - Ver en YouTube](https://youtu.be/osg_WmeLxQk?t=5s)
+
+### *Canon In D Major* - Pachelbel
+* **Link:** [Ver en YouTube](https://youtu.be/NlprozGcs80)
 
 ---
 
@@ -77,17 +80,34 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 
 ---
 
-## Romanticismo
-*Pasión, emoción desbordada y libertad.*
+## Romanticismo Temprano y Pleno (1810 – 1860)
+"El triunfo de la subjetividad, el virtuosismo del piano y la expresión del alma individual."
+
 
 ### *Waltz Op. 69 No. 1 "Farewell Waltz"* — Frédéric Chopin
 * **Link:** [Ver en YouTube](https://youtu.be/g3aIVzoEaI0)
+
+---
+
+## Romanticismo Tardío y Post-Romanticismo (1860 – 1910)
+"La monumentalidad orquestal, el drama nacionalista y la intensidad emocional llevada al límite."
+
 
 ### *Waltz of The Flowers* — Tchaikovsky
 * **Link:** [Ver en YouTube](https://youtu.be/qPpDNY-Iiz0)
 
 ### * Valse Sentimentale* — Tchaikovsky
 * **Link:** [Ver en YouTube](https://youtu.be/rUuusqy50yk)
+
+
+---
+
+## Modernismo y Siglo XX (1910 – 1980)
+"La ruptura de la armonía tradicional, el contraste rítmico y la música bajo el reflejo de un siglo en crisis."
+
+### *Waltz No.2* — Shostakovich
+* **Link:** [Ver en YouTube](https://youtu.be/mmCnQDUSO4I)
+
 
 ---
 
