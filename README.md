@@ -32,7 +32,7 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 ### *String Quartet No. 23, K. 590* - Mozart
 * **Link:** [Ver en YouTube](https://youtu.be/NN0ZKZ274t4)
 
-### *String Quartet No. 20 in D major: II. Menuetto: Allegretto with a trio, K. 499 “Hoffmeister”* - Mozart
+### *String Quartet No. 20 in D major, K. 499 “Hoffmeister”: II. Menuetto: Allegretto with a trio* - Mozart
 * **Link:** [07:08 - Ver en YouTube](https://youtu.be/pyIZ-OANSVM?t=7m8s)
 
 ### *Concerto No. 23 in A major, K 488* - Mozart
@@ -71,6 +71,9 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 
 ### *String Quintet No. 5 in D major, K. 593* - Mozart
 * **Link:** [Ver en YouTube](https://youtu.be/v_qXHMzCXzs)
+
+### *Piano Concerto No. 27 in B-flat major, K. 595* - Mozart
+* **Link:** [Ver en YouTube](https://youtu.be/akPaLS18L7U)
 
 ---
 
