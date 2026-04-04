@@ -157,6 +157,22 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 
 ### *Nocturne Op. 15 No. 2 in F-Sharp Major* —  Frédéric Chopin
 * **Link:** [Ver en YouTube](https://youtu.be/cnnSeChY--M)
+
+### *Waltz Op.69 No.2* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/cxG-kOTMgaA)
+
+### *Waltz in A minor, B 150, Op. Posth* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/DFzV544BEzU)
+
+### *Nocturnes, Op. 32: No. 1 in B Major: Andante sostenuto* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/DAjQdS3CT0s)
+
+### *Polonaise Op. 40 No. 1 in A major, "Military"* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/hbnunexhlXM)
+
+### *Fantaisie Impromptu, Op. 66* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/75x6DncZDgI)
+
 ---
 
 ## Romanticismo Tardío y Post-Romanticismo (1860 – 1910)
