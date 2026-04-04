@@ -173,6 +173,22 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 ### *Fantaisie Impromptu, Op. 66* —  Frédéric Chopin
 * **Link:** [Ver en YouTube](https://youtu.be/75x6DncZDgI)
 
+### *Étude Op. 10, No. 12 in C minor "Revolutionary"* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/7VWHBHeNrg4)
+
+### *Les Trois nouvelles études, No. 1 in F minor* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/8MYDx_OnLfw)
+
+### *Mazurka, Op. 6 No. 1* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/BIpi0k_Fs2E)
+
+### *Etude in C major Op. 10 No. 1* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/yhvFGWChNGY)
+
+### *Ballade No.1 in G minor, Op.23* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/BSFNl4roGlI)
+
+
 ---
 
 ## Romanticismo Tardío y Post-Romanticismo (1860 – 1910)
@@ -191,8 +207,8 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 ### *Wiener Blut, Op. 354 'Viennese Blood' or 'Viennese Spirit'* — J.Strauss II
 * **Link:** [Ver en YouTube](https://youtu.be/LJxaXG9EZmg)
 
-### *Arabesque No. 1 in E major* — Debussy
-* **Link:** [Ver en YouTube](https://youtu.be/Yh36PaE-Pf0)
+### *Capricho Árabe* — Francisco Tárrega
+* **Link:** [Ver en YouTube](https://youtu.be/6uJP3gH8SwY)
 
 ---
 
