@@ -115,10 +115,48 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 ### *Grand Polonaise Brillante Op.22* —  Frédéric Chopin
 * **Link:** [Ver en YouTube](https://youtu.be/_PY0NFC4aEw)
 
-### * Nocturne No. 2 in E flat Major, Op. 9,2 * —  Frédéric Chopin
+### *Nocturne No. 2 in E flat Major, Op. 9,2* —  Frédéric Chopin
 * **Link:** [Ver en YouTube](https://youtu.be/bVeOdm-29pU)
 
+### *Nocturnes, Op. 9: No. 3 in B Major: Allegretto* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/u7_RcOdV9io)
 
+### *Nocturnes, Op. 9: No. 1 in B-Flat Minor: Larghetto* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/AsDs6IqOc18)
+
+### *Nocturne in C-Sharp Minor, Op. Posth., B. 49* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/yTyTBmhVqlY)
+
+### *Nocturne in C Minor, Op. Posth., B. 108* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/8ywMVdb4D6I)
+
+### *Nocturne in E Minor, Op. Posth. 72, No. 1* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/H_eb_Q7JSw4)
+
+### *Prelude op. 28 no. 3 in G major* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/cf8o9gsRvBo)
+
+### *Waltzes, Op. 34: No. 1 in A-Flat Major: Vivace* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/QlXWQ_hWLrY)
+
+### *Waltzes, Op. 34: No. 2 in A Minor: Lento* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/yCijP3w7ORo)
+
+### *Waltzes, Op. 34: No. 3 in F Major: Vivace* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/HFXOTh0Mngc)
+
+### *Three Waltzes, Op.70* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/oCjeyj0e2SY)
+* *Nota:* Ver descripción para las marcas de tiempo de cada vals
+
+### *Waltzes, Op.64 N°1 to 3* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/8sblAhm1SnI)
+
+### *Grand Valse Brillante, Op 18* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/g2r7skqSkNM)
+
+### *Nocturne Op. 15 No. 2 in F-Sharp Major* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/cnnSeChY--M)
 ---
 
 ## Romanticismo Tardío y Post-Romanticismo (1860 – 1910)
