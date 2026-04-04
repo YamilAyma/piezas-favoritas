@@ -15,11 +15,18 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 ## Barroco
 *Piezas de la era de la ornamentación y el contrapunto.*
 
-### *Concerto no.1 in D Minor BWV 1052: 1mvt* - J.S.Bach
+### *Concerto No.1 in D Minor BWV 1052: 1mvt* - J.S.Bach
 * **Link:** [00:05 - Ver en YouTube](https://youtu.be/osg_WmeLxQk?t=5s)
 
 ### *Canon In D Major* - Pachelbel
 * **Link:** [Ver en YouTube](https://youtu.be/NlprozGcs80)
+
+### *Cello Suite No. 1 in G major, BWV 1007* - J.S.Bach
+* **Link:** [Ver en YouTube](https://youtu.be/x9lwJPWHpHM)
+
+### *Prelude in C major, BWV 846* - J.S.Bach
+* **Link:** [Ver en YouTube](https://youtu.be/ToWj_4xvVZA)
+
 
 ---
 
@@ -87,6 +94,18 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 ### *Waltz Op. 69 No. 1 "Farewell Waltz"* — Frédéric Chopin
 * **Link:** [Ver en YouTube](https://youtu.be/g3aIVzoEaI0)
 
+### *Piano Sonata No. 14 "Moonlight Sonata": 3rd mvt* —  Beethoven
+* **Link:** [Ver en YouTube](https://youtu.be/6unwFFeNTjQ)
+
+### *Minuet in G Major, WoO 10, No. 2* —  Beethoven
+* **Link:** [Ver en YouTube](https://youtu.be/ttHwuyJsZAI)
+
+### *Tritsch-Tratsch-Polka, Op. 214* —  J.Strauss II
+* **Link:** [Ver en YouTube](https://youtu.be/DJLhNg6RcWw)
+
+### *Étude Op. 25, No. 1 in A-flat major "Aeolian Harp"* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/lccVbc05AYA)
+
 ---
 
 ## Romanticismo Tardío y Post-Romanticismo (1860 – 1910)
@@ -99,6 +118,14 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 ### * Valse Sentimentale* — Tchaikovsky
 * **Link:** [Ver en YouTube](https://youtu.be/rUuusqy50yk)
 
+### *The Skaters' Waltz, Op. 183* — Waldteufel
+* **Link:** [Ver en YouTube](https://youtu.be/TpOdsttjVO0)
+
+### *Wiener Blut, Op. 354 'Viennese Blood' or 'Viennese Spirit'* — J.Strauss II
+* **Link:** [Ver en YouTube](https://youtu.be/LJxaXG9EZmg)
+
+### *Arabesque No. 1 in E major* — Debussy
+* **Link:** [Ver en YouTube](https://youtu.be/Yh36PaE-Pf0)
 
 ---
 
@@ -108,6 +135,8 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 ### *Waltz No.2* — Shostakovich
 * **Link:** [Ver en YouTube](https://youtu.be/mmCnQDUSO4I)
 
+### *Mariage d'amour* — Paul de Senneville
+* **Link:** [Ver en YouTube](https://youtu.be/FoCG-WNsZio)
 
 ---
 
