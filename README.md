@@ -106,6 +106,19 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 ### *Étude Op. 25, No. 1 in A-flat major "Aeolian Harp"* —  Frédéric Chopin
 * **Link:** [Ver en YouTube](https://youtu.be/lccVbc05AYA)
 
+### *Berceuse in D-Flat Major, Op. 57 * —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/5SsS-1mWpGg)
+
+### *Andante spianato in G Major, Op. 22 * —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/a44vmZfQbdc)
+
+### *Grand Polonaise Brillante Op.22* —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/_PY0NFC4aEw)
+
+### * Nocturne No. 2 in E flat Major, Op. 9,2 * —  Frédéric Chopin
+* **Link:** [Ver en YouTube](https://youtu.be/bVeOdm-29pU)
+
+
 ---
 
 ## Romanticismo Tardío y Post-Romanticismo (1860 – 1910)
