@@ -27,6 +27,18 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 ### *Prelude in C major, BWV 846* - J.S.Bach
 * **Link:** [Ver en YouTube](https://youtu.be/ToWj_4xvVZA)
 
+### *Keyboard Concerto No.2 in E* - J.S.Bach
+* **Link:** [Ver en YouTube](https://youtu.be/gJfzyyyoOks)
+
+### *Toccata and Fugue in D Minor* - J.S.Bach
+* **Link:** [Ver en YouTube](https://youtu.be/ho9rZjlsyYY)
+
+### *Prelude & Fugue No. 3 in C-sharp Major, BWV 848* - J.S.Bach
+* **Link:** [Ver en YouTube](https://youtu.be/aRs-nC_Ta5s)
+
+### *Invention No. 1 in C Major, BWV 772* - J.S.Bach
+* **Link:** [Ver en YouTube](https://youtu.be/_TBFwUUI-As)
+
 
 ---
 
@@ -84,6 +96,12 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 
 ### *Piano Concerto No. 27 in B-flat major, K. 595* - Mozart
 * **Link:** [Ver en YouTube](https://youtu.be/akPaLS18L7U)
+
+### *Piano Concerto No. 22 in E-flat major, K. 482* - Mozart
+* **Link:** [Ver en YouTube](https://youtu.be/fA3ri7xs4BQ)
+* 
+### *Symphony No. 38 in D, K. 504 "Prague"* - Mozart
+* **Link:** [Ver en YouTube](https://youtu.be/ot3g41rHFqU)
 
 ---
 
@@ -210,6 +228,9 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 ### *Capricho Árabe* — Francisco Tárrega
 * **Link:** [Ver en YouTube](https://youtu.be/6uJP3gH8SwY)
 
+### *Prélude à l'Après-midi d'un faune* — Claude Debussy
+* **Link:** [Ver en YouTube](https://youtu.be/bYyK922PsUw)
+
 ---
 
 ## Modernismo y Siglo XX (1910 – 1980)
@@ -220,6 +241,9 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 
 ### *Mariage d'amour* — Paul de Senneville
 * **Link:** [Ver en YouTube](https://youtu.be/FoCG-WNsZio)
+
+### *Bolero* — Maurice Ravel
+* **Link:** [Ver en YouTube](https://youtu.be/r30D3SW4OVw)
 
 ---
 
