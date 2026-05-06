@@ -39,6 +39,18 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 ### *Invention No. 1 in C Major, BWV 772* - J.S.Bach
 * **Link:** [Ver en YouTube](https://youtu.be/_TBFwUUI-As)
 
+### * Invention No. 4 in D Minor, BWV 775* - J.S.Bach
+* **Link:** [Ver en YouTube](https://youtu.be/WwBkktDGgiE)
+
+### *Invention 8 in F Major, BWV 779* - J.S.Bach
+* **Link:** [Ver en YouTube](https://youtu.be/0ShOyEGGvkY)
+
+### *Invention 13 in A Minor, BWV 784* - J.S.Bach
+* **Link:** [Ver en YouTube](https://youtu.be/yUojj0YIN14)
+
+### *Minuet in G major, BWV Anh 114* - J.S.Bach
+* **Link:** [Ver en YouTube](https://youtu.be/p1gGxpitLO8)
+
 
 ---
 
