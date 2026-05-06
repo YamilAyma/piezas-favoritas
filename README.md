@@ -66,6 +66,12 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 ### *Brandenburg Concerto No. 3 in G Major BWV 1048* - J.S.Bach
 * **Link:** [Ver en YouTube](https://youtu.be/pdsyNwUoON0)
 
+### *Orchestral Suite No.2, BWV 1067* - J.S.Bach
+* **Link:** [Ver en YouTube](https://youtu.be/K9ytFf2Vwbo)
+
+### *Musette in D major, BWV Anh 126* - J.S.Bach
+* **Link:** [Ver en YouTube](https://youtu.be/cBjjfUexPCA)
+
 
 ---
 
@@ -126,9 +132,22 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 
 ### *Piano Concerto No. 22 in E-flat major, K. 482* - Mozart
 * **Link:** [Ver en YouTube](https://youtu.be/fA3ri7xs4BQ)
-* 
+ 
 ### *Symphony No. 38 in D, K. 504 "Prague"* - Mozart
 * **Link:** [Ver en YouTube](https://youtu.be/ot3g41rHFqU)
+
+### *String Quintet No. 1 in B-flat major, K. 174* - Mozart
+* **Link:** [Ver en YouTube](https://youtu.be/j-68BMs2c1c)
+
+### *String Quintet No. 2 in C minor, K. 406* - Mozart
+* **Link:** [Ver en YouTube](https://youtu.be/qk0MV_cJfvQ)
+
+### *String Quartet No. 2 in D major, K. 155* - Mozart
+* **Link:** [Ver en YouTube](https://youtu.be/ZAsnjPq08K4)
+
+### *Piano Concerto No. 1 in F major, K. 37. I. Allegro* - Arr. Mozart
+* **Link:** [Ver en YouTube](https://youtu.be/dFX9uv7lg0U)
+
 
 ---
 
@@ -257,6 +276,9 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 
 ### *Prélude à l'Après-midi d'un faune* — Claude Debussy
 * **Link:** [Ver en YouTube](https://youtu.be/bYyK922PsUw)
+
+### *Ma vlast (My Fatherland): No. 2. Vltava (Moldau)* — Bedřich Smetana
+* **Link:** [Ver en YouTube](https://youtu.be/3G4NKzmfC-Q)
 
 ---
 
