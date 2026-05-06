@@ -51,6 +51,21 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 ### *Minuet in G major, BWV Anh 114* - J.S.Bach
 * **Link:** [Ver en YouTube](https://youtu.be/p1gGxpitLO8)
 
+### * The Well-Tempered Clavier, Book I: Prelude in E Minor, BWV 855a (Arr. for Piano by A. Siloti)* - J.S.Bach
+* **Link:** [Ver en YouTube](https://youtu.be/W2zi5Q-ZAQQ)
+
+### *French Suite No.5 in G Major, BWV816* - J.S.Bach
+* **Link:** [Ver en YouTube](https://youtu.be/f_U0lm6HZMk)
+
+### *French Suite No.3 in B minor BWV814* - J.S.Bach
+* **Link:** [Ver en YouTube](https://youtu.be/Q4t1TVxL9sg)
+
+### *Piano Partita No. 2 In C Minor, BWV 826* - J.S.Bach
+* **Link:** [Ver en YouTube](https://youtu.be/VNG8Jmz5zqI)
+
+### *Brandenburg Concerto No. 3 in G Major BWV 1048* - J.S.Bach
+* **Link:** [Ver en YouTube](https://youtu.be/pdsyNwUoON0)
+
 
 ---
 
