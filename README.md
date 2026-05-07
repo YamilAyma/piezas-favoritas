@@ -72,6 +72,12 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 ### *Musette in D major, BWV Anh 126* - J.S.Bach
 * **Link:** [Ver en YouTube](https://youtu.be/cBjjfUexPCA)
 
+### *"Little" Fugue in G minor, BWV 578* - J.S.Bach
+* **Link:** [Ver en YouTube](https://youtu.be/Bbox4oi6HjA)
+
+### *Prelude and Fugue in A minor, BWV 543* - J.S.Bach
+* **Link:** [Ver en YouTube](https://youtu.be/Pfnkz1cFp8g)
+
 
 ---
 
@@ -147,6 +153,15 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 
 ### *Piano Concerto No. 1 in F major, K. 37. I. Allegro* - Arr. Mozart
 * **Link:** [Ver en YouTube](https://youtu.be/dFX9uv7lg0U)
+
+### *String Quintet in E major, Op. 11, No. 5* - Boccherini
+* **Link:** [Ver en YouTube](https://youtu.be/2AZOknKotVc)
+
+### *String Quintet No. 3 in C major, K. 515* - Mozart
+* **Link:** [Ver en YouTube](https://youtu.be/hRETImqnmcw)
+
+### *String Quintet No. 4 in G minor, K. 516* - Mozart
+* **Link:** [Ver en YouTube](https://youtu.be/SbLc8WHtJlU)
 
 
 ---
@@ -252,6 +267,12 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 ### *Ballade No.1 in G minor, Op.23* —  Frédéric Chopin
 * **Link:** [Ver en YouTube](https://youtu.be/BSFNl4roGlI)
 
+### *String Quintet No. 2 in B♭ major, Op. 87* —  Mendelssohn
+* **Link:** [Ver en YouTube](https://youtu.be/Njap_FDpojA)
+
+### *String Quintet No. 1 in A major, Op. 18* —  Mendelssohn
+* **Link:** [Ver en YouTube](https://youtu.be/ZdO6o5VqWR8)
+  
 
 ---
 
@@ -279,6 +300,16 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 
 ### *Ma vlast (My Fatherland): No. 2. Vltava (Moldau)* — Bedřich Smetana
 * **Link:** [Ver en YouTube](https://youtu.be/3G4NKzmfC-Q)
+
+### *String Quintet No. 2, Op. 111* —  Brahms
+* **Link:** [Ver en YouTube](https://youtu.be/KUTYq6d0gb0)
+
+### *String Quintet No. 1, Op. 88* —  Brahms
+* **Link:** [Ver en YouTube](https://youtu.be/KUTYq6d0gb0)
+
+### *Quintet No.2 in G-Major, Op.77 for 2 Violins, Viola, Cello and Double Bass* —  Brahms
+* **Link:** [Ver en YouTube](https://youtu.be/MGVl8vISwFo)
+
 
 ---
 
