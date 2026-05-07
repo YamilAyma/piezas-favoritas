@@ -331,6 +331,9 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 ### *Bolero* — Maurice Ravel
 * **Link:** [Ver en YouTube](https://youtu.be/r30D3SW4OVw)
 
+### *String Quartet No. 5 "Quatetor Popular No. 1* — Heitor Villa-Lobos
+* **Link:** [Ver en YouTube](https://youtu.be/zR0BFCWgtB0)
+
 ---
 
 ### 📝 Guía rápida: Cómo guardar links limpios
