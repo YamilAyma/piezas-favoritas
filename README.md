@@ -307,8 +307,14 @@ Este es mi archivo personal de piezas clásicas, guardado para la posteridad y c
 ### *String Quintet No. 1, Op. 88* —  Brahms
 * **Link:** [Ver en YouTube](https://youtu.be/KUTYq6d0gb0)
 
-### *Quintet No.2 in G-Major, Op.77 for 2 Violins, Viola, Cello and Double Bass* —  Brahms
+### *Quintet No.2 in G-Major, Op.77 for 2 Violins, Viola, Cello and Double Bass* —  Antonín Dvořák
 * **Link:** [Ver en YouTube](https://youtu.be/MGVl8vISwFo)
+
+### *String Quintet Op. 39* —  Alexander Glazunov
+* **Link:** [Ver en YouTube](https://youtu.be/AhCbDvMO8ao)
+
+### *Piano Quartet No. 1 in C minor, Op. 15* —  Fauré
+* **Link:** [Ver en YouTube](https://youtu.be/QMwcmX7bOxo)
 
 
 ---
